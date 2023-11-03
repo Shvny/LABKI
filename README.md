@@ -1,0 +1,2 @@
+# LABKI
+Paradygmaty
